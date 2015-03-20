@@ -1,6 +1,6 @@
 #SushiJS London
 
-Next meetup: [18th June](https://ti.to/sushijs/london-june-2014)
+Next meetup: 27th June
 
 Discussions of future meetups can be found in the [open issues](https://github.com/sushijs/london-uk/issues?page=1&state=open), and previous, the [closed](https://github.com/sushijs/london-uk/issues?page=1&state=closed).
 
