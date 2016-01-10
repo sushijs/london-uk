@@ -5,7 +5,6 @@ Here's a few of the places we've tried:
 - Pham - Whitecross Street
 - Kyoto - Romilly Street
 - Ichi Riki - Strutton Ground
-- 
 
 
 And here's some more that we'll try at some point:
