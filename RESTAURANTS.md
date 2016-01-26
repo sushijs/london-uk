@@ -5,11 +5,11 @@ Here's a few of the places we've tried:
 - Pham - Whitecross Street
 - Kyoto - Romilly Street
 - Ichi Riki - Strutton Ground
-
+- Nagoya - George Street
 
 And here's some more that we'll try at some point:
 
 - yoobi
 - Kulu Kulu Sushi  (shelton street)
 - k10 - liverpool street area, (http://www.k10.com/wp/)
-- Nagoya - George Street
+- Taro - Soho (http://www.tarorestaurants.co.uk/)
