@@ -9,6 +9,7 @@ Here's a few of the places we've tried:
 - Taro - Soho (http://www.tarorestaurants.co.uk/)
 - Abeno (Museum st)
 - ~~Eat Tokyo - Holborn (http://www.eattokyo.co.uk/holborn)~~
+- Sushinoen - Whitechapel - (http://www.sushinoen.com/) (Good food but had to pay separately)
 
 And here's some more that we'll try at some point:
 
@@ -17,4 +18,3 @@ And here's some more that we'll try at some point:
 - k10 - liverpool street area, (http://www.k10.com/wp/)
 - Asakusa - Mornington Crescent (https://goo.gl/maps/4ga6xZTfF5x)
 - Tenshi London - Angel (http://www.tenshilondon.com/)
-- Sushinoen - Whitechapel - (http://www.sushinoen.com/)
