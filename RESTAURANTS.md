@@ -7,7 +7,7 @@ Here's a few of the places we've tried:
 - Ichi Riki - Strutton Ground
 - Nagoya - George Street
 - Taro - Soho (http://www.tarorestaurants.co.uk/)
-- Abeno (Museum st)
+- Abeno (Museum st) (requires people to choose their food up-front)
 - ~~Eat Tokyo - Holborn (http://www.eattokyo.co.uk/holborn)~~
 - Sushinoen - Whitechapel - (http://www.sushinoen.com/) (Good food but had to pay separately)
 
